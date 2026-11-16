@@ -1,3 +1,3 @@
 - ФИО: Григорян Марианна Фрунзеевна
 - Группа: БРИЦП 263
-- Telegram: @marishao_a
+- Telegram: @marishaao_a
